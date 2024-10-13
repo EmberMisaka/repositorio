@@ -1,0 +1,1 @@
+Projetos relacionados à faculdade, nenhuma mídia utilizada nos projetos são autorais
